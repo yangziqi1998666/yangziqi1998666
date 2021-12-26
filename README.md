@@ -8,7 +8,7 @@
 
 - ECE master student in University of Southern California
 - Bachelor's degree in Nanjing University of Posts and Telecommunications
-- Hoping to enter a top conpany as a software developer
+- Hoping to enter a top company as a software developer
 
 **Where to find me**
 
